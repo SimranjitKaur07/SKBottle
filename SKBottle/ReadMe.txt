@@ -89,5 +89,26 @@ At 2am
 i am so tired i need little break and i took my cofffe and  i go for little walk 
 it was snow night 
 
-After that i go to the next step which is sql and  in that 
+After that i go to the next step which is sql and  in that i started working with database
+
+it took so long  time 
+ 
+After that i got lot of errors 
+than i again created my project
+
+i started again file at 25 at 8:30 
+than i followed same steps and
+i got my results without any error
+
+At 10:36 i completed my assignment 
+i also added font and all info 
+about us 
+and i checked on Browser and it works
+Finally my assignment done 
+I was so execusted now i am readyu to enjoy my Weekend.
+
+Thankou
+Your Regards
+Simranjit kaur
+error 
 
